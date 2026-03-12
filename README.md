@@ -31,10 +31,10 @@
   https://91blc.com  
 
 - 最新备用网址（免翻墙）  
-  http://bliao31.com  
+  http://bliao32.com  
 
 - 备用访问地址（免翻墙）  
-  http://bliao29.com  
+  http://bliao31.com  
 
 ---
 
