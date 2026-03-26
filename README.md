@@ -28,7 +28,7 @@
 为保障稳定访问，请使用以下官方地址：
 
 - 永久官网（需翻墙）  
-  https://91blc.com  
+  https://91blv.com  
 
 - 最新备用网址（免翻墙）  
   http://bliao33.com  
@@ -41,7 +41,7 @@
 ## 官方渠道
 
 - Telegram 商务合作  
-  https://t.me/bliao91  
+  https://t1t1.com  
 
 - 官方 X（Twitter）账号  
   https://x.com/91blw  
