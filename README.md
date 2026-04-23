@@ -31,16 +31,19 @@
   https://91blv.com  
 
 - 最新备用网址（免翻墙）  
-  http://91baol1.com
+  https://91baol2.com
 
-- 备用访问地址（免翻墙）  
-  http://bliao38.com
+- 备用访问地址（需翻墙）  
+  https://91blc.com
 
 ---
 
 ## 官方渠道
 
-- Telegram 商务合作  
+- 商务合作  
+  https://t1t1.com
+
+- Telegram 投稿合作  
   https://t1t1.com  
 
 - 官方 X（Twitter）账号  
