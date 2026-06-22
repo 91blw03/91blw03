@@ -41,10 +41,10 @@
 ## 官方渠道
 
 - 商务合作  
-  https://t1t1.com
+  https://p4n2m.t6vhns-t1t1.icu
 
 - Telegram 投稿合作  
-  https://t1t1.com  
+  https://baol91
 
 - 官方 X（Twitter）账号  
   https://x.com/91blw  
