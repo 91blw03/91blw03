@@ -31,7 +31,7 @@
   https://91blv.com  
 
 - 最新备用网址（免翻墙）  
-  https://91baol17.com
+  https://91baol18.com
 
 - 备用访问地址（需翻墙）  
   https://91blc.com
