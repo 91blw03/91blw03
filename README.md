@@ -41,7 +41,7 @@
 ## 官方渠道
 
 - 商务合作  
-  https://p4n2m.t6vhns-t1t1.icu
+  https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
 
 - Telegram 投稿合作  
   https://baol91
