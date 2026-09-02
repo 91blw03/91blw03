@@ -31,10 +31,10 @@
   https://91blv.com  
 
 - 最新备用网址（免翻墙）  
-  https://91baol27.com
+  https://jybl6.com
 
-- 备用访问地址（需翻墙）  
-  https://91blc.com
+- 备用访问地址（免翻墙）  
+  https://jybl5.com
 
 ---
 
