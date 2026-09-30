@@ -28,10 +28,10 @@
   https://91blv.com  
 
 - 最新备用网址（免翻墙）  
-  https://jybl16.com
+  https://jybl18.com
 
 - 备用访问地址（免翻墙）  
-  https://jybl15.com
+  https://jybl17.com
 
 ---
 
