@@ -38,7 +38,7 @@
 ## 官方渠道
 
 - 商务合作  
-  https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
+https://t.me/NVFALAO
 
 - Telegram 投稿合作  
   https://baol91
